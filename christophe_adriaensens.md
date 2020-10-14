@@ -4,7 +4,7 @@
 
 ![PHOTO-2020-08-09-17-52-55](https://user-images.githubusercontent.com/67370296/95966122-108c6e80-0e0b-11eb-97b5-2c5abfcfae6f.jpeg)
 
-## "Me in one sentence, work in progress"
+## "What you see is what you get"
 ___
 
 | Question          |    Answer         |
